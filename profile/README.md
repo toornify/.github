@@ -1,6 +1,4 @@
-## Sanity Esports ✈🎮
-revolutionising esports
+### launching to tournaments nearest you soon
 
-[website](https://sanityesports.live/) • [linkedin](https://linkedin.com/company/sanity-esports) 
+[updates](https://linkedin.com/company/sanity-esports) 
 
-mail ~ [``founders@sanityesports.live``](mailto:founders@sanityesports.live) 📩
