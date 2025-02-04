@@ -1,4 +1,2 @@
-### launching to tournaments nearest you soon
-
-[updates](https://linkedin.com/company/sanity-esports) 
+### iterating @ [toornify.com](https://linkedin.com/company/sanity-esports) 
 
